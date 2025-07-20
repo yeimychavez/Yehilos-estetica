@@ -1,2 +1,0 @@
-# Yehilos-estetica
-Estética integral 
